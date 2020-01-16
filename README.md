@@ -5,3 +5,4 @@ My pair is USD/JPY.
 What is your favorite hobby?
 Poker first and then trading. But they change places. 
 What day do you want to meet up this weekend? I can Fri Sat or Sun.
+My favorite hobbies are driving and trading. I am free on Saturday and Sunday. Do you think you'd be able to live without the internet?
